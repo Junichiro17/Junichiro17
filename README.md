@@ -32,11 +32,7 @@ Donde no hay perdón para el  i̶n̶j̶u̶s̶t̶o̶,
                          ni piedad para el 𝐜𝐨𝐫𝐫𝐮𝐩𝐭𝐨…        »
 
 ㅤ  ឵឵ ឵឵     ㅤ  ឵឵ ឵឵ ¡𝗤𝘂𝗲 𝗲𝗺𝗽𝗶𝗲𝗰𝗲 𝗲𝗹 𝗷𝘂𝗶𝗰𝗶𝗼!
-             
-
-                    結尾
-                    Link in the comments.
-                                           ᵉⁿᵈ ᵒᶠ ᵗʳⁱᵃˡ
+          
 ㅤ  ឵឵ ឵឵ 
  ㅤ  ឵឵ ឵឵ 
  ឵឵ ឵឵
