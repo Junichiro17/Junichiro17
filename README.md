@@ -29,6 +29,3 @@
 
 
 
-<div align="center">
-  <img src=./toji-manga.jpg width="100%">
-</div>
