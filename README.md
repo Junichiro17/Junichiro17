@@ -33,8 +33,3 @@
 
 <div align="center">
   <img src=fcd27cd1b02d26302991c7a330e85e2c (1).jpg width="100%">
-
-  <br><br>
-
-  <img src= width="100%">
-</div>
