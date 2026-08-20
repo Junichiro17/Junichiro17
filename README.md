@@ -32,9 +32,9 @@
 
 
 <div align="center">
-  <img src="4d42423b3bf3e57f9523ca4878e58e5f.jpg" width="100%">
+  <img src=fcd27cd1b02d26302991c7a330e85e2c (1).jpg width="100%">
 
   <br><br>
 
-  <img src="./2ce6c99320c2b3f690947ae4f0a49813.jpg" width="100%">
+  <img src= width="100%">
 </div>
