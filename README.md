@@ -28,8 +28,6 @@
 
 
 <div align="center">
-  <img src="fcd27cd1b02d26302991c7a330e85e2c.jpg"width="100%">
-
-
-
+  <img src="./new-image.jpg" width="100%">
+</div>
 
